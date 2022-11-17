@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @NOAH86CC
+- 👀 I’m interested in ... Learning how to make a good up running website.
+- 🌱 I’m currently learning ... Carpenter
+- 📫 How to reach me ... noahtc08@gmail.com
